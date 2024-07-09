@@ -1,0 +1,1 @@
+ngentot enak sedap nikmat
